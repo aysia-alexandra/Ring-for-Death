@@ -6,7 +6,8 @@ RING ONCE FOR DEATH
 
               Illustrator: Ernie Barth
 
-    The power of the old gods was certainly nothing for Mark and Edith a modern, twentieth-century couple to worry about.     After all everybody dies!
+    The power of the old gods was certainly nothing for Mark and Edith a modern, 
+    twentieth-century couple to worry about. After all everybody dies!
 
  *       *       *       *       *
 
