@@ -8,6 +8,7 @@ RING ONCE FOR DEATH
 
     The power of the old gods was certainly nothing for Mark and Edith a modern, 
     twentieth-century couple to worry about. After all everybody dies!
+		
 
  *       *       *       *       *
 
